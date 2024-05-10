@@ -1,4 +1,4 @@
-### Hi there 👋
+![image](https://github.com/Sahith-Chandra/Sahith-Chandra/assets/146782408/a58209cb-5e53-4931-a1d4-272e9b1b260a)
 
 <!--
 **Sahith-Chandra/Sahith-Chandra** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
