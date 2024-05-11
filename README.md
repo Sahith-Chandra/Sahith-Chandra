@@ -1,5 +1,5 @@
 
-![star_wars_jump_to_lightspeed_in_reverse_as_viewed_from_rear_of_spaceship_3Dfx (1)](https://github.com/Sahith-Chandra/Sahith-Chandra/assets/146782408/abbbd604-e7b1-4932-9dbd-13f14135fcca)
+![star_wars_jump_to_lightspeed_in_reverse_as_viewed_from_rear_of_spaceship_3Dfx1-ezgif com-resize](https://github.com/Sahith-Chandra/Sahith-Chandra/assets/146782408/61cf4bd9-07dd-469f-87ac-917ac5aa2a95)
 
 
 <!--
