@@ -1,4 +1,6 @@
-![image](https://github.com/Sahith-Chandra/Sahith-Chandra/assets/146782408/a58209cb-5e53-4931-a1d4-272e9b1b260a)
+
+![star_wars_jump_to_lightspeed_in_reverse_as_viewed_from_rear_of_spaceship_3Dfx (1)](https://github.com/Sahith-Chandra/Sahith-Chandra/assets/146782408/abbbd604-e7b1-4932-9dbd-13f14135fcca)
+
 
 <!--
 **Sahith-Chandra/Sahith-Chandra** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
